@@ -1,6 +1,6 @@
 anime
 is
 the
-best
+great
 thing
 ever
